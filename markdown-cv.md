@@ -58,6 +58,23 @@ Professional Model (Freelance
 * Fashion Shows and runways . 
 * Editorial photo-shoot . 
  
+ ### Fabula 
+June 2014 - April 2015 
+Sales Advisor 
+
+* Having extensive knowledge about the current trends and fashion styles, along 
+with the types of shoes that work best . 
+* Offering feedback and advice on each shoes. Ultimately, the bridal shop 
+salesperson is responsible for . 
+* Helping the customer find the ideal shoes. 
+. Offering advice and suggestions that would look appropriate based on the 
+customers ideal perception. 
+Skills *Excellent communicational and interpersonal skills. Demonstrable customer service skills, 
+* cash-handling experience and efficient 
+organizational ability.  
+* Committed to work under pressure and meet deadlines.  
+* Flexible,  and well adaptable to new situations . 
+ * Highly organized and possesses the ability to multi-task.
 
 ## Interest 
 -----
